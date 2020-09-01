@@ -1,1 +1,1 @@
-Mr Ong is very humourous and makes his lessons fun and enjoyable. As sometimes Chemistry may get boring, he constantly cracks jokes (although we may not react) and likes to explain concepts to us in a creative manner. Many of us like his lessons very much.
+Mr Ong is very humourous and makes his lessons fun and enjoyable. As sometimes Chemistry may get boring, he constantly cracks jokes (although we may not react) and likes to explain concepts to us in a creative manner.(Idea used by Becky 1H) Many of us like his lessons very much.
